@@ -13,10 +13,3 @@ My name is Ashish and I'm an AI Trainer, and on the side, I'm also working as an
 
 -----
 
-### Other Useful Links:
-
-LinkedIn - https://linkedin.com/in/ashish-jangra 
-
-Instagram - https://instagram.com/ashish_zangra 
-
-Facebook - https://facebook.com/ashishzangra
